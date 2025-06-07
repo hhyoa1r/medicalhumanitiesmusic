@@ -12,3 +12,7 @@ Type: folk music
 # Extraordinary Attorney Woo
 
 ‘Beyond My Dream’ by Sunwoo Jung-a is a song that captures the atmosphere of the drama and expresses the inner world of the main character, Woo Young-woo, through music. The song delicately portrays Woo Young-woo’s internal conflicts and the difficulties she faces in communicating with society, reflecting an attempt to musically express the emotional world of individuals with autism spectrum disorder."
+
+[The music video](https://youtu.be/LPZDKf29IRs?si=7IhlU4jDk81L6J9z) gathers Woo Young-woo's situation at the time and scenes where she was good at conveying her emotions, helping her express her emotions in detail. This allows viewers to have a broader understanding of disability along with songs.
+
+A movie that deals with the same disablilty is[*Rain Man*](. "Rain Man" and "Weird Lawyer Woo Young-woo" move away from the view of autism spectrum disorder as simply a "disease". It's a work that takes it as "different" and shows that it can be linked to human values and dignity. Both characters are socially out of line with what is considered to be "normal",Connect with the world in your own way and shake the stereotypes of those around you. Their appearance sends an important message about the understanding, inclusion, and diversity of disabilities.
